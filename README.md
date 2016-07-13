@@ -1,8 +1,4 @@
 # web
 For web
 
-rohit
-
-ttttt
-
-cvghfghfgh hgfhfghfg hgfh
+hi every one
